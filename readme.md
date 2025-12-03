@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **contact@ravian.tech**
 
-- ⚡ Fun fact **part time sim racer**
+- ⚡ Fun fact **I am a part time sim racer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
